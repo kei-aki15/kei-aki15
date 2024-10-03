@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Kai
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me ig:@rem.loveyy
+- 😄 Pronouns: she/her/they/them
+- ⚡ Fun fact: I like girls
